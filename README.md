@@ -5,3 +5,4 @@ Zungenbrecher für jede Gelegenheit
 * Blaukraut bleibt Blaukraut und Brautkleid bleibt Brautkleid.
 * Im dichten Fichtendickicht picken die flinken Finken tüchtig.
 * Kerkermeister Kerkeling kärchert klebrige Körper, klebrige Körper kärchert Kerkermeister Kerkeling.
+* Der fiese friesische Fliesenleger fliest mit fiesem friesischem Fliesenkleber.
