@@ -6,3 +6,4 @@ Zungenbrecher für jede Gelegenheit
 * Im dichten Fichtendickicht picken die flinken Finken tüchtig.
 * Kerkermeister Kerkeling kärchert klebrige Körper, klebrige Körper kärchert Kerkermeister Kerkeling.
 * Der fiese friesische Fliesenleger fliest mit fiesem friesischem Fliesenkleber.
+* Zwischen zwei Zwetschgenzweigen sitzen zwei zwitschernde Schwalben.
