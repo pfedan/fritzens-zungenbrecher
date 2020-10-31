@@ -7,3 +7,4 @@ Zungenbrecher für jede Gelegenheit
 * Kerkermeister Kerkeling kärchert klebrige Körper, klebrige Körper kärchert Kerkermeister Kerkeling.
 * Der fiese friesische Fliesenleger fliest mit fiesem friesischem Fliesenkleber.
 * Zwischen zwei Zwetschgenzweigen sitzen zwei zwitschernde Schwalben.
+* Sechzig tschechische Chemiker checken rechnerisch technische Schemata.
