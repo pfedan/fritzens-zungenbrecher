@@ -8,3 +8,4 @@ Zungenbrecher für jede Gelegenheit
 * Der fiese friesische Fliesenleger fliest mit fiesem friesischem Fliesenkleber.
 * Zwischen zwei Zwetschgenzweigen sitzen zwei zwitschernde Schwalben.
 * Sechzig tschechische Chemiker checken rechnerisch technische Schemata.
+* Der kleine plappernde Kaplan klebt klappbare poppige Pappplakate an die klappernde Kapellwand.
