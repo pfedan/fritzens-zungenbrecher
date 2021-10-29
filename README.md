@@ -9,3 +9,5 @@
 * Zwischen zwei Zwetschgenzweigen sitzen zwei zwitschernde Schwalben.
 * Sechzig tschechische Chemiker checken rechnerisch technische Schemata.
 * Der kleine plappernde Kaplan klebt klappbare poppige Pappplakate an die klappernde Kapellwand.
+* Zwei Astronauten kauten und kauten während sie blaugrüne Mondsteine klaubten.
+* 
