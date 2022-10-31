@@ -14,3 +14,4 @@
 * Es soll vorkommen, daß die Nachkommen mit dem Einkommen nicht mehr auskommen und dann vollkommen verkommen umkommen.
 * Wenn Klappergras blüht, bleibt Klappergras immer noch grün.
 * Herr und Frau Lücke gingen über eine Brücke. Da kam eine Mücke und stach Frau Lücke ins Genicke. Da nahm Herr Lücke seine Krücke und schlug Frau Lücke ins Genicke. Weswegen dann Frau Lücke mit der Mücke und der Krücke im Genicke tot umfiel.
+* Fromme Frösche fressen frische Frühlingszwiebeln, aber freche Frösche fressen frische Früchte.
