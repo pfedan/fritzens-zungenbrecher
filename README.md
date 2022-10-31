@@ -11,3 +11,4 @@
 * Der kleine plappernde Kaplan klebt klappbare poppige Pappplakate an die klappernde Kapellwand.
 * Zwei Astronauten kauten und kauten während sie blaugrüne Mondsteine klaubten.
 * Der Leutnant von Leuthen befahl seinen Leuten, nicht eher zu läuten als der Leutnant von Leuthen seinen Leuten das Läuten befahl.
+* Es soll vorkommen, daß die Nachkommen mit dem Einkommen nicht mehr auskommen und dann vollkommen verkommen umkommen.
