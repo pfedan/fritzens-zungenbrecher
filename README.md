@@ -16,3 +16,4 @@
 * Herr und Frau Lücke gingen über eine Brücke. Da kam eine Mücke und stach Frau Lücke ins Genicke. Da nahm Herr Lücke seine Krücke und schlug Frau Lücke ins Genicke. Weswegen dann Frau Lücke mit der Mücke und der Krücke im Genicke tot umfiel.
 * Fromme Frösche fressen frische Frühlingszwiebeln, aber freche Frösche fressen frische Früchte.
 * Fischers frisch frisierter Fritze frisst frisch frittierte Frisch-Fisch-Frikadellen.
+* Schnecken erschrecken, wenn sie an Schnecken schlecken, weil zum Schrecken vieler Schnecken, Schnecken nicht schmecken.
