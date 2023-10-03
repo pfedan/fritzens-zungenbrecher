@@ -18,3 +18,4 @@
 * Fischers frisch frisierter Fritze frisst frisch frittierte Frisch-Fisch-Frikadellen.
 * Schnecken erschrecken, wenn sie an Schnecken schlecken, weil zum Schrecken vieler Schnecken, Schnecken nicht schmecken.
 * Des Weiteren ist das Übrige auszuschließen und im Übrigen sind die Ausschlüsse zu erweitern und die Erweiterungen sind ausschließlich zu erübrigen. Erübrigungen werden des Weiteren ausgeschlossen. Ausgeschlossene Erweiterungen sind übrig. Übrige Ausschlüsse werden erweitert. Erweiterte Erübrigungen werden ausgeschlossen. Auszuschließende Erübrigungen werden erweitert.
+* Der Maurer Böckl trug auf seinem Buckel einen Pickel und ein Packl. Hinterdrein ging der Bummler Bäckl mit seinem Hund Bockl. Auf einmal packte dem Bäckl sein Bockl dem Böckl das Packl und riss es im samt dem Pickel vom Buckel.
